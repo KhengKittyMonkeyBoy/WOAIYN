@@ -1,1 +1,1 @@
-print ("I love Yuning Nigger")
+print ("I am a gay fat ugly man")
